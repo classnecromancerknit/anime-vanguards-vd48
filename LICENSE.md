@@ -1,4 +1,4 @@
-#  
+#  smart anime vanguards Script is the best anime vanguards Script, featuring esp and private server access. Safe and powerful for all your needs.
 
 
 
